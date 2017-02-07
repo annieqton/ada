@@ -1,6 +1,6 @@
 # **Annie Ton-Nu**  
 
-### **TELEPHONE:** 206-437-6708 &nbsp; ♣ &nbsp; **EMAIL:** <annieqton@gmail.com>
+### **TELEPHONE:** xxx-xxx-xxxx &nbsp; ♣ &nbsp; **EMAIL:** <xoxoxox@gmail.com>
 
 #### **SUMMARY**
 ***
